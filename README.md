@@ -1,5 +1,5 @@
 # Sull'origine delle malattie
-### Breve trattato alchemico a cura di Ciro Riccidora ciro.riccidora@gmail.com
+### Breve trattato ermetico a cura di Ciro Riccidora ciro.riccidora@gmail.com
 
 
 #### Visita Interiora Terrae Rectificando Invenies Occultum Lapidem
